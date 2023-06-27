@@ -9,7 +9,6 @@
  - [Instagram](https://www.instagram.com/t1n0me/)
  - [Vkontakte](https://vk.com/t1n0me)
  - Telegram @t1n0me
-
 ## About me 
 I communicate well with people, I know how to work in a team, I want to gain new experience and knowledge.
 I am coping well with my duties
